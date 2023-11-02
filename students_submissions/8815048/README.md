@@ -1,2 +1,0 @@
-Duygu Ozcelik Senturk
-8815048

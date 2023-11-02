@@ -1,1 +1,0 @@
-Khushbu Patel
